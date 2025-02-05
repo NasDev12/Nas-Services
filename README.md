@@ -34,8 +34,6 @@ Delivery & Payment – Once the project is complete, we ensure timely delivery a
 ✅ Clear and fair pricing.
 
 
-Our website:https://bit.ly/NasDev
-
 Feel free to contact me on my email or in direct messages.
 Discrd : spvx.liv
 Email : nassermh.alharthy@gmail.com
